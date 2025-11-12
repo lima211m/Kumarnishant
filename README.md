@@ -1,4 +1,4 @@
 # Kumarnishant
 Hi what are you doing 
 
-WE ARE GOIMG TO MONACO
+WE ARE GOING TO MONACO
